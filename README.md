@@ -1,4 +1,4 @@
-# Hi, I'm Zihling 👋
+# Hi, I'm Lynn 👋
 
 ### AI Engineering | Systems Integration | Agentic AI
 
